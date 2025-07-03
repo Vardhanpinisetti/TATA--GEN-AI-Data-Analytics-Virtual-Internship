@@ -1,1 +1,1 @@
-# TATA--GEN-AI-Data-Analytics-Virtual-Internship
+# TATA-GEN-AI-Data-Analytics-Virtual-Internship
